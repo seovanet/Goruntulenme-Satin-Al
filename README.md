@@ -1,0 +1,1 @@
+# Goruntulenme-Satin-Al
